@@ -9,6 +9,6 @@ I've been coding for a year, working to create everyday solutions that enhance e
 *   🌍  I'm based in Kenya
 *   ✉️  You can contact me at [hillarymwangimaina@gmail.com](mailto:hillarymwangimaina@gmail.com)
 *   🤝  I'm open to collaborating on Building a playstore for AI agents
-*   ⚡  Don't just stalk me, reachout, I might end up on the Forbes under 30 list, you never know### Skills 
+*   ⚡  Don't just stalk me, reachout, I might end up on the Forbes under 30 list, you never know
 
      
