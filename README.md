@@ -25,5 +25,5 @@ Open to collaborating on building a Playstore for AI agents
 Email: [hillarymwangimaina@gmail.com](mailto:hillarymwangimaina@gmail.com)
 
 
-⚡ Don't just stalk me, reach out! I might end up on the Forbes Under 30 list—you never know! 🚀
+⚡ Might end up on the Forbes Under 30 list—you never know! 🚀
 
